@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @Bangstardo
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on 
+Here to code,
+
+Thanks for dropping by!
+
 - 📫 How to reach me retasapp@gmail.com
 
 <!---
