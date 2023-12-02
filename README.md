@@ -1,5 +1,5 @@
 here to code,
-  
+  some tarnished tech guy.
 Thanks for dropping by!
 
 - 📫 How to reach me retasapp@gmail.com
