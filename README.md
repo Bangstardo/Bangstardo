@@ -2,6 +2,10 @@ I'm just a man,
 
 - 📫 How to reach me retasapp@gmail.com
 
+
+- Retasapp[https://retasapp.com]
+- BangstardStudios[https://bangstard.com] 
+
 I don't know who made the cat image that is my profile pic,
 I am truly grateful for your mind.
 
